@@ -1,4 +1,4 @@
-# 🚀 Solana Airdrop Guide 2024 | Manual Version
+# 🚀 Solana Airdrop Guide 2026 | Manual Version
 ---
 
 ## 📢 **Join Our Community:** @SolanaGit (Telegram)
