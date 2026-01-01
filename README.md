@@ -109,7 +109,3 @@ Join @SolanaGit community for:
 **Last Updated:** January 2026
 **Maintained by:** Solana Community  
 **For Updates:** Join @SolanaGit on Telegram
-
----
-
-*Save this guide as a text file. Update manually when you find new information. Stay safe and good luck!*
